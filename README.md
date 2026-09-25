@@ -146,6 +146,8 @@ This profile contains a mixture of production-oriented projects, experiments, le
 
 * GitHub: **@kgothalangLekitlane**
 * LinkedIn: **Kgothalang Lekitlane**
+* gmail: **lekitlaneisaac0@gmail.com**
+* mobile contact:**0697454062**
 
 ---
 
